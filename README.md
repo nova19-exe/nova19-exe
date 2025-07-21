@@ -3,7 +3,7 @@
 👨🏻‍💻 Information Science Student<br/>
 🧠 Brainiac by day<br/>
 🎨 UX Designer by night<br/>
-💻 Tech Savvy dude<<br/>
+💻 Tech Savvy dude<br/>
 
 
 ## 🌐 Socials:
